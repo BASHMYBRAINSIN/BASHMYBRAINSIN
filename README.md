@@ -5,7 +5,7 @@
   ![profileviews](https://komarev.com/ghpvc/?username=BASHMYBRAINSIN&color=yellow)
 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled274_20260611193109.png" width="300" />
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b21433f0ca37b5841ba87887759d3e22_4b1a975a_250.png" width="50" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8782fc68b040194f92ec7569cbd03c7f_4e5ae1d8_250.png" width="50" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org">𝘮𝘪 𝘢𝘵𝘢 ,, . </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘭𝘰𝘷𝘦𝘭𝘺 . ,  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled277_20260611193455.png" width="320" />
 <p align="center">୧ ‧₊˚ 🥩🦴 ⋅
