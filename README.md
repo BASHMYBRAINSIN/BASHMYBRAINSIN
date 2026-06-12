@@ -1,13 +1,13 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ef25be8265b37273a13689eccb8e8277_78c16104_540.webp" width="600" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/IMG_2142.png" width="600" />
 
-  ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
+  ![profileviews](https://komarev.com/ghpvc/?username=BASHMYBRAINSIN&color=yellow)
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled197_20260521163546.png" width="300" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled274_20260611193109.png" width="300" />
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b21433f0ca37b5841ba87887759d3e22_4b1a975a_250.png" width="50" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org">𝘮𝘪 𝘢𝘵𝘢 ,, . </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘭𝘰𝘷𝘦𝘭𝘺 . ,  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled195_20260521153008.png" width="320" />
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled277_20260611193455.png" width="320" />
 <p align="center">୧ ‧₊˚ 🥩🦴 ⋅
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b64c32d638fd36746a49a4a73a789f4c_4659936a_400.webp" width="400" />    
 <p align="center"> 
