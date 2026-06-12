@@ -8,7 +8,7 @@
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_8782fc68b040194f92ec7569cbd03c7f_4e5ae1d8_250.png" width="50" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org">𝘮𝘪 𝘢𝘵𝘢 ,, . </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘭𝘰𝘷𝘦𝘭𝘺 . ,  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled277_20260611193455.png" width="320" />
-<p align="center">୧ ‧₊˚ 🥩🦴 ⋅
+<p align="center">𝘄𝗲 𝗱𝗼𝗻𝘁 𝗻𝗲𝗲𝗱 𝘁𝗼 𝗰𝗵𝗮𝗻𝗴𝗲. ❤︎
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled278_20260611193552.png" width="400" />    
 <p align="center"> 
 <p align="center">
